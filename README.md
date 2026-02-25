@@ -1,0 +1,52 @@
+# Louis The Child – Go
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Water-thin, can't get in
+What you runnin' for?
+Where is it you wanna go?
+Where is it you wanna go
+Overtime, I'm overtime
+I've heard it all
+What is it you wanna know?
+The f*ck is it you wanna know
+Filling your head up, it won't
+be better 'til you're
+Filling your head up
+Filling your head up, it won't
+be better 'til you're
+Filling your head up
+Where is it you wanna go
+Where is it you wanna go
+Where is it you wanna go
+Where is it you wanna go
+Where is it you wanna go
+Where is it you wanna go
+Walls are thin, fallin' in
+Knockin' down the door
+Where is it you wanna go
+Where is it you wanna go
+After all the time, all the
+lives
+I found the fall
+What is it you're waitin' for?
+The fuck is it you're waitin'
+for
+Filling your head up, it won't
+be better 'til you're
+Filling your head up
+Filling your head up, it won't
+be better 'til you're
+Filling your head up
+Where is it you wanna go
+Where is it you wanna go
+Where is it you wanna go
+Where is it you wanna go
+Where is it you wanna go
+Where is it you wanna go
+Where is it you wanna go
+Where is it you wanna go
+Where is it you wanna go
+Where is it you wanna go
+```
